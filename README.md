@@ -1,2 +1,2 @@
 # Project ECHO
-(horrible obsession of endless cyberia)
+(the Horrible Obsession of Endless Cyberia)
